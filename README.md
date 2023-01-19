@@ -1,1 +1,1 @@
-# Graphic-design
+# Graphics-design
